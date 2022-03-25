@@ -1,3 +1,0 @@
-# My lab 4
-
-Motorcycles are great..
